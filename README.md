@@ -1,0 +1,1 @@
+# Equa-o2-Grau
